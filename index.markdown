@@ -34,7 +34,7 @@ You should not use emoji with teeth as it is "[cringe](https://www.urbandictiona
 * [Fam](https://www.urbandictionary.com/define.php?term=fam) - Short for family, but used like "bro" (for millenials) or "dude" for Gen-X.
 * [Glow up](https://www.urbandictionary.com/define.php?term=Glow+Up) - A makeover (mental, physical, or emothional) for the better.
 * [Stan](https://www.urbandictionary.com/define.php?term=Stan) - an obsessed/overzealous person of a celebrity/band/cast, or someone you idolize. Used like "I stan Loona"
-* [CEO]() -
+* [CEO](https://www.urbandictionary.com/define.php?term=CEO) - You've mastered something. "You're the CEO of getting take out"
 * [E-boy/e-girl]() -
 * [W]() -
 * [Dank]() -

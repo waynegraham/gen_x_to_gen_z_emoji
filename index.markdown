@@ -29,25 +29,32 @@ You should not use emoji with teeth as it is "[cringe](https://www.urbandictiona
 
 # Vocabulary
 
-* [Cringe](https://www.urbandictionary.com/define.php?term=Cringe) - embarrasing, awkward
+* [Big Yikes](https://www.urbandictionary.com/define.php?term=Big%20yike) - An escalation of "yikes"; severe cringe.
+* [Boujee](https://www.urbandictionary.com/define.php?term=Boujee) - Someone/thing rich, extravant, or fancy.
+* [Camp](https://www.urbandictionary.com/define.php?term=camp) - 
 * [Cap](https://www.urbandictionary.com/define.php?term=cap) - Another word for lying; "That's cap" means "you're lying". "No cap" (I'm not lying).
-* [Fam](https://www.urbandictionary.com/define.php?term=fam) - Short for family, but used like "bro" (for millenials) or "dude" for Gen-X.
-* [Glow up](https://www.urbandictionary.com/define.php?term=Glow+Up) - A makeover (mental, physical, or emothional) for the better.
-* [Stan](https://www.urbandictionary.com/define.php?term=Stan) - an obsessed/overzealous person of a celebrity/band/cast, or someone you idolize. Used like "I stan Loona"
 * [CEO](https://www.urbandictionary.com/define.php?term=CEO) - You've mastered something. "You're the CEO of getting take out"
-* [E-boy/e-girl]() -
-* [W]() -
-* [Dank]() -
-* [Ghosting]() -
-* [Salty]() -
-* [Big Yikes]() -
-* [Boujee]() -
-* [Finna]() -
-* [High-key]() -
-* [Cheugy]() -
-* [Simp]() -
-* [Camp]() -
+* [Cheugy](https://www.urbandictionary.com/define.php?term=Cheugy) - Opposite of trendy. 
+* [Cringe](https://www.urbandictionary.com/define.php?term=Cringe) - embarrasing, awkward.
+* [Dank](https://www.urbandictionary.com/define.php?term=dank) - Something that is high-quality. Often used to desribe memes (e.g. "dank memes"). Think of it how "dope" was used.
+* [E-boy/e-girl](https://www.urbandictionary.com/define.php?term=eboy) - think emo/goth culture, but only express themselves online
+* [Fam](https://www.urbandictionary.com/define.php?term=fam) - Short for family, but used like "bro" (for millenials) or "dude" for Gen-X.
+* [Finna](https://www.urbandictionary.com/define.php?term=finna) - Going to. "Finna take it to the house" 
+* [Glow up](https://www.urbandictionary.com/define.php?term=Glow+Up) - A makeover (mental, physical, or emothional) for the better.
+* [Ghosting](https://www.urbandictionary.com/define.php?term=Ghosting) - When a person starts ignoring someone, particularly in dating, with no warning. 
+* [High-key](https://www.urbandictionary.com/define.php?term=highkey) - The opposite of low-key.
+* [Salty](https://www.urbandictionary.com/define.php?term=salty) - Being upset over something minor or feeling jealous.
 * [Snack]() -
+* [Simp](https://www.urbandictionary.com/define.php?term=Simp) - Someone who pays "too much" attention to someone (or something). Usually used in cases of a crush. Often used in a derogatory way to tease someone. 
+* [Stan](https://www.urbandictionary.com/define.php?term=Stan) - an obsessed/overzealous person of a celebrity/band/cast, or someone you idolize. Used like "I stan Loona"
+* [W](https://www.urbandictionary.com/define.php?term=W) - Win
+* 
+
+
+
+
+
+
 * [TFW]() -
 * [Woke]() -
 * [Sip tea]() -

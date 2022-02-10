@@ -32,7 +32,7 @@ You should not use emoji with teeth as it is "[cringe](https://www.urbandictiona
 * [Big Yikes](https://www.urbandictionary.com/define.php?term=Big%20yike) - An escalation of "yikes"; severe cringe.
 * [Bop](https://www.urbandictionary.com/define.php?term=bop) - A song that is really catchy. [The Feels](https://www.youtube.com/watch?v=f5_wn8mexmM) is a bop.
 * [Boujee](https://www.urbandictionary.com/define.php?term=Boujee) - Someone/thing rich, extravant, or fancy.
-* [Camp](https://www.urbandictionary.com/define.php?term=camp) - 
+* [Camp](https://www.urbandictionary.com/define.php?term=camp) - Something that is ironically trendy (like crocs).
 * [Cap](https://www.urbandictionary.com/define.php?term=cap) - Another word for lying; "That's cap" means "you're lying". "No cap" (I'm not lying).
 * [CEO](https://www.urbandictionary.com/define.php?term=CEO) - You've mastered something. "You're the CEO of getting take out"
 * [Cheugy](https://www.urbandictionary.com/define.php?term=Cheugy) - Opposite of trendy. 

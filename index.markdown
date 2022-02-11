@@ -60,10 +60,12 @@ You should not use emoji with teeth as it is "[cringe](https://www.urbandictiona
 * [Hits different](https://www.urbandictionary.com/define.php?term=Hits%20different) - When something is significantly better or better under certain circumstances. 
 * [iykyk](https://www.urbandictionary.com/define.php?term=iykyk) - if you know, you know
 * [I’m weak](https://www.urbandictionary.com/define.php?term=I%27m+weak%21) - When you find somethign hilarious; similar to "I'm dead."
+* [I'm dead](https://www.urbandictionary.com/define.php?term=I%27m%20Dead) - A response to something you find funny. Think "I died of laughter."
 * [L](https://www.urbandictionary.com/define.php?term=L) - To loose
 * [Living rent free](https://www.urbandictionary.com/define.php?term=Living%20rent%20free) - Something or someone you can't stop thinking about. Often a movie clip or meme "[that lives in your brain rent free](https://www.youtube.com/watch?v=5JcuKCXQ9Uk)."
 * [Main character](https://www.urbandictionary.com/define.php?term=Main+character) - Generally someone who is well liked and charismatic in life. Used when they are making a scene, but in a good way. "You were the main character at the club tonight."
 * [Periodt](https://www.urbandictionary.com/define.php?term=Periodt) - Used at the end of a statement to emphasize the point (think multiple !!!!).
+* [Pressed](https://www.urbandictionary.com/define.php?term=Pressed) - Being mad, stressed, or upset about something. 
 * [Salty](https://www.urbandictionary.com/define.php?term=salty) - Being upset over something minor or feeling jealous.
 * [Sending me](https://www.urbandictionary.com/define.php?term=sending+me) - Something you find funny. Alternatives to "i'm screaming; I'm dead; I literally can't."
 * [Sheesh](https://www.urbandictionary.com/define.php?term=Sheesh) - Daaaaaamn. Often said while pointing at the crook of one arm with two fingers.
@@ -79,7 +81,9 @@ You should not use emoji with teeth as it is "[cringe](https://www.urbandictiona
 * [Sus](https://www.urbandictionary.com/define.php?term=sus) - Something you don't trust (suspect) or is otherwise shady. From the popular game [Among Us](https://www.innersloth.com/games/among-us/) you would get "Cyan is sus" 
 * [Take several seats](https://www.urbandictionary.com/define.php?term=take%20several%20seats) - Chill out; think of "take a seat," but amplified.  
 * [This ain't it, chief](https://www.urbandictionary.com/define.php?term=This+ain%27t+it+chief) - A way to disapprove of something that isn't quite right.
-* [TFW](https://www.urbandictionary.com/define.php?term=TFW) - That feeling when
+* [TFW](https://www.urbandictionary.com/define.php?term=TFW) - Abbreviation of "that feeling when"
 * [Vibe Check](https://www.urbandictionary.com/define.php?term=Vibe+Check) - When someone spontaneously checks your [vibe](https://www.urbandictionary.com/define.php?term=Vibe).
 * [W](https://www.urbandictionary.com/define.php?term=W) - Win
+* [Wig](https://www.urbandictionary.com/define.php?term=Wig) - Something that blows you away. Newer version of "wigging out." 
 * [Woke](https://www.urbandictionary.com/define.php?term=Woke) - Politically aware of current affairs
+* [Yeet](https://www.urbandictionary.com/define.php?term=Yeet) - To throw something very hard or to show excitement or approval. 

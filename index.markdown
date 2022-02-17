@@ -16,7 +16,7 @@ layout: page
 | 😭 | I'm super embarred |
 | 🧍 | I feel very awkward  |
 | 🧢 | I'm lying (but also can be I'm not lying) |
-| 🥺 | Innocent/ |
+| 🥺 | Innocent/uwu |
 | 🤪 | Silly-Goofy Mood |
 | 👉👈 | Ashamed or shy |
 | 🙃 | FML |
@@ -51,7 +51,7 @@ You should not use emoji with teeth as it is "[cringe](https://www.urbandictiona
 * [Extra](https://www.urbandictionary.com/define.php?term=extra) - Someone who is being over the top, usually over nothing. 
 * [Fam](https://www.urbandictionary.com/define.php?term=fam) - Short for family, but used like "bro" (for millenials) or "dude" for Gen-X.
 * [Finesse](https://www.urbandictionary.com/define.php?term=finesse) - To trick or manipulate someone, or a situation, in order to get what you want in a slick (or cheating) way.
-* [Finna](https://www.urbandictionary.com/define.php?term=finna) - Going to. "[Finna take it to the house](https://www.youtube.com/watch?v=GSDMIXmctMc)" 
+* [Finna](https://www.urbandictionary.com/define.php?term=finna) - Going to. Think Trick Daddy's "[Finna take it to the house](https://www.youtube.com/watch?v=GSDMIXmctMc)" 
 * [Glow up](https://www.urbandictionary.com/define.php?term=Glow+Up) - A makeover (mental, physical, or emothional) for the better.
 * [Ghosting](https://www.urbandictionary.com/define.php?term=Ghosting) - When a person starts ignoring someone, particularly in dating, with no warning. 
 * [G.O.A.T.](https://www.urbandictionary.com/define.php?term=goat) - Greatest of All Time
@@ -82,6 +82,7 @@ You should not use emoji with teeth as it is "[cringe](https://www.urbandictiona
 * [Take several seats](https://www.urbandictionary.com/define.php?term=take%20several%20seats) - Chill out; think of "take a seat," but amplified.  
 * [This ain't it, chief](https://www.urbandictionary.com/define.php?term=This+ain%27t+it+chief) - A way to disapprove of something that isn't quite right.
 * [TFW](https://www.urbandictionary.com/define.php?term=TFW) - Abbreviation of "that feeling when"
+* [uwu](https://www.urbandictionary.com/define.php?term=uwu) - A reaction to something to cuteness-overload and/or super innocent. Often texted with 🥺. 
 * [Vibe Check](https://www.urbandictionary.com/define.php?term=Vibe+Check) - When someone spontaneously checks your [vibe](https://www.urbandictionary.com/define.php?term=Vibe).
 * [W](https://www.urbandictionary.com/define.php?term=W) - Win
 * [Wig](https://www.urbandictionary.com/define.php?term=Wig) - Something that blows you away. Newer version of "wigging out." 

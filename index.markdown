@@ -55,6 +55,7 @@ You should not use emoji with teeth as it is "[cringe](https://www.urbandictiona
 * [Glow up](https://www.urbandictionary.com/define.php?term=Glow+Up) - A makeover (mental, physical, or emothional) for the better.
 * [Ghosting](https://www.urbandictionary.com/define.php?term=Ghosting) - When a person starts ignoring someone, particularly in dating, with no warning. 
 * [G.O.A.T.](https://www.urbandictionary.com/define.php?term=goat) - Greatest of All Time
+* [Gorl](https://www.urbandictionary.com/define.php?term=Gorl) - Girl
 * [Guap](https://www.urbandictionary.com/define.php?term=Guap) - Lots of money (in your hands)
 * [High-key](https://www.urbandictionary.com/define.php?term=highkey) - The opposite of low-key.
 * [Hits different](https://www.urbandictionary.com/define.php?term=Hits%20different) - When something is significantly better or better under certain circumstances. 

@@ -25,6 +25,12 @@ layout: page
 | 👀 | I'm listening |
 | 😗 | Sounds good to me, or "Ooooooh"|
 | 💁 | Well duh |
+| 👁️👄👁️ | Utter disbelief |
+| 🤡 | You feel like you've been the butt of a joke or foolish |
+| 🕳️🧑‍🦯 | I am going to mess this up |
+| 💅 | Talking trash; spilling tea |
+| 🙂👍 | Utter frustration (the person sending this is about to loose their mind) |
+| 🔪🔪🔪 | Do it, or I will stab you |
 
 You should not use emoji with teeth as it is "[cringe](https://www.urbandictionary.com/define.php?term=Cringe)" as is 🤯
 
